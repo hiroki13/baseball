@@ -5,6 +5,7 @@
 - [Aroldis Chapman Pitching Mechanics Slow Motion](https://www.youtube.com/watch?v=JRGkY99hHDo)
 - [Craig Kimbrel Pitching Slow Motion](https://www.youtube.com/watch?v=P6bWyZ--xxs)
 - [Pitching Mechanics Slow Motion](https://www.youtube.com/watch?v=cb_4_6K1DHU)
+- [外野手の強肩講座](https://www.youtube.com/watch?v=miT7iN49X5E)
 
 ## Text
 - [前足・軸足の蹴り](http://kitchensink11.seesaa.net/article/300255771.html)
